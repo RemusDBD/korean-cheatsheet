@@ -1,5 +1,5 @@
 # korean-cheatsheet-NOBS
-<B>The only 1 sheet that you need for learning Korean language.<B><br>
+<B>The only 1 sheet that you need for learning Korean language. NO BS.<B><br>
 
 <i>Typing Practice :<br>
 [The only 1 typing tool](https://www.branah.com/korean) <br>
