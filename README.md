@@ -1,4 +1,4 @@
-# korean-cheatsheet
+# korean-cheatsheet-NOBS
 <B>The only 1 sheet that you need for learning Korean language.<B><br>
 
 <i>Typing Practice :<br>
